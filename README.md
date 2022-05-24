@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sunties123 my real name is Suvanan Chayglin
+- 👀 I’m interested in Canva design etc.
+- 🌱 I’m currently learning at Satrinonthaburi School 
+- 💞️ I’m looking to collaborate on Canva with my Team and my best friend.
+- I wantto get a Canva Pro because my school give a lot of homework with canva. 
